@@ -1,3 +1,5 @@
 Open Project || Menunggu Kepastian Pak Bagja <br>
-Fadilah Nur Lutfah <br>
-Sri Novellaputri Ramadhany
+<br>
+Nama Kelompok : <br>
+1. Fadilah Nur Lutfah <br>
+2. Sri Novellaputri Ramadhany
