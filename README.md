@@ -1,4 +1,4 @@
-Open Project || Menunggu Kepastian Pak Bagja <br>
+Open Project || 
 <br>
 Nama Kelompok : <br>
 1. Fadilah Nur Lutfah <br>
